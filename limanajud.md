@@ -1,0 +1,1 @@
+ika lina najud!. . mag padaun pa unta
